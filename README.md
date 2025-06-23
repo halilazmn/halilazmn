@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on anything that will give me new knowledge and not that hard.
 - 🤔 I’m looking for help with everything to be honest.
 - 😄 Pronouns: He
-- ⚡ Fun fact: I dropped out of engineering.
